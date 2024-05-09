@@ -1,7 +1,5 @@
 fort fort 👋
 
-sou a linee
+tenho 17
 
-tenho 17yy
-
-ig:@lineseep_
+insta:@lineseep_
