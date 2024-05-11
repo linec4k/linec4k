@@ -1,8 +1,8 @@
-fort fort 👋
+slv cz
 
 tenho 17
 
 insta:@lineseep_
 
-![](https://media.tenor.com/htcCqsvHjJ8AAAAM/campe%C3%A3o-brasileiro-jogadores-palmeirenses.gif)
+![](https://media.tenor.com/ISCbeJiZt3cAAAAM/bellingham-real-madrid.gif)
 
